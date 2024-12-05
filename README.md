@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...scas
 - 📫 How to reach me ...
 - 😄 Pronouns: ...535ads
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ...asd
 556ds
 <!---453
 vebene/vebene is a ✨ special ✨ repository because its `RE54ADME.md` (this file) appears on your GitHub profile.
