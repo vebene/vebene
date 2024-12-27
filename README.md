@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @vebene
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...45
-- 💞️ I’m looking to collaborate on ...scas
+- 💞️ I’m looking to collaborate on ...scas54
 - 📫 How to reach me ...45
 - 😄 Pronouns: ...535ads
 - ⚡ Fun fact: ...asd3
