@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...45
 - 💞️ I’m looking to collaborate on ...scas54
 - 📫 How to reach me ...45
-- 😄 Pronouns: ...535ads774
+- 😄 Pronouns: ...535ads7746366
 - ⚡ Fun fact: ...asd354456152
 ads5451655
 <!---453dfs45052
