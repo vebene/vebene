@@ -3,7 +3,7 @@ jmxcvf+.+- 👋 Hi, I’m @vebene
 - 🌱 I’m currently learning ...45hjmmhjrt
 - 💞️ I’m looking to collaborate on ...scas547778532dsffsdsdf
 - 📫 How to reach me ...jjmjeqwfvvfzxcxzcxzxczxc
-- 😄 Pronouns: ...535ads7746366sad2262
+- 😄 Pronouns: ...535ads7746366sad2262262
 - ⚡ Fun fact: ...asd354456152jmhsdafggfngherzaqqqhjmasesa
 ads5451655gerdgfhyt
 <!---453dfs4505230xcvjyjrrer
