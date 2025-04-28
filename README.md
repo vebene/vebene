@@ -1,6 +1,6 @@
 zxczxxcrgerejmxcvf+.+- 👋 Hi, I’m @veben
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning ...45hjmmhjr
+- 🌱 I’m currently learning ...45hjmmhjrwefewffew
 - 💞️ I’m looking to collaborate on ...scas547778532dsffsdsdffeefetrtrtg
 - 📫 How to reach me ...jjmjeqwfvvfzxcxzcxzxczxc3+rfd
 - 😄 Pronouns: ...535ads7746366sad2262262sdfxcvcxgbfgfb
